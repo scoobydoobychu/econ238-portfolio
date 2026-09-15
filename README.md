@@ -1,1 +1,1 @@
-# econ238-portfolio
+# Miranda Chu Kovatch - Econ 238 Portfolio

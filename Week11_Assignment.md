@@ -1,6 +1,7 @@
 <img width="1545" height="1999" alt="Green Simple Illustrative Zoo Promotion Poster" src="https://github.com/user-attachments/assets/cae1578b-2a97-4616-912f-1f7e6988d910" />
 
 
+
 When it comes to protecting animal welfare, I am not the person I want to be, and by that, I mean that I am not a vegan. It feels like a moral failing to be so aware of the inhumane conditions animals in factory farms endure and yet, fuel the dairy and meat markets with my own consumption. I feel a lot of guilt about not adhering to veganism.
 
 Earlier in the summer, Billie Eilish drew criticism after saying that someone could not both eat meat and love animals. Her statement and my guilt share the same underlying logic: by feeding money into a market that is founded on the violent (and often, grotesquely so) exploitation of animals, we are participants in that brutality. 

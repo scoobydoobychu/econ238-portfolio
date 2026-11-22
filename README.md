@@ -5,5 +5,4 @@ Environmental Economics, Fall 2026, University of Rochester
 - [Your House Must Pay: Racialized Violence and Exploitation in the South & the Ghostly Folklore that Followed](Week8_Assignment)
 - [On the Faroe Islands](Week10_Assignment.md)
 - [On Speciesism & My Complicated Relationship with Eating Meat](Week11_Assignment.md)
-- [Poster for Deconstructing Speciesism](MirandaKovatch_Poster)
 - [On Coase & Liability Rule](Week12_Assignment.md)
